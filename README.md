@@ -1,1 +1,3 @@
 # dolgozat1
+
+ufuufu
